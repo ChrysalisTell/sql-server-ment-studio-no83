@@ -1,4 +1,4 @@
-# 
+# top JetBrains PyCharm para PC scripts é o melhor JetBrains PyCharm para PC scripts com sistema de plugins e variantes de build. Seguro, confiável e otimizado para máximo
 
 
 
